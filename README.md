@@ -5,7 +5,7 @@ I made the whistle a standalone item so it can be used with badges you already h
 
 ----
 DEVS:
-The dev model can be requested in my discord, Keep in mind that I will only allow certain people to gain access to the unlocked version as some devs are selling a whistle for $10+ and this was made to be a free alternative for the community.
+The dev model can be requested in my discord, Keep in mind that I will only allow certain people to gain access to the unlocked version as some devs are selling policeman whistle's for like $10+ and this was made to be a free alternative for the community.
 ----
 
 MY FREE ASSETS ARE TO BE KEPT FREE! DO NOT TRY TO CLAIM IT AS YOUR OWN PRODUCT AND TRY TO SELL IT!!
